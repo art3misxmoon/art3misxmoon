@@ -1,3 +1,3 @@
-# art3misxmoon
+# art3mis
 
-## 🌒👾♯
+## to the moon! 🌒👾
